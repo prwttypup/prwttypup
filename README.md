@@ -14,5 +14,7 @@
 <br br br>
 <br br br>
 <br br br>
-ㅤ<h3>$\color{#27D9C4}{\text{am i suffering beautifully?}}\color{#000000}{\text{}}$</h3>
-ㅤ<h3>$\color{#2165BD}{\text{is my agony loveable?}}\color{#2165BD}{\text{ Ი𐑼}}$</h3>
+<br br br>
+<br br br>
+<h3>$\color{#27D9C4}{\text{am i suffering beautifully?}}\color{#000000}{\text{}}$</h3>
+<h3>$\color{#2165BD}{\text{is my agony loveable?}}\color{#2165BD}{\text{ Ი𐑼}}$</h3>
