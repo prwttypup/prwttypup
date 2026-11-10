@@ -30,7 +30,7 @@ paws at u all
     </td>
   </tr>
 </table>
-<h3>$\color{#27D9C4}{\text{tell me, how many wounds did you endure}}\color{#000000}{\text{}}$</h3>
-<h3>$\color{#2165BD}{\text{because the person holding the knife was the one you loved}}\color{#2165BD}{\text{?}}$</h3>
+<h3>$\color{#27D9C4}{\text{yet he looked at me like i was something}}\color{#000000}{\text{}}$</h3>
+<h3>$\color{#2165BD}{\text{like there was something in me worth looking at}}\color{#2165BD}{\text{}}$</h3>
 
 
