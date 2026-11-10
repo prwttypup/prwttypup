@@ -9,7 +9,7 @@
 
 <details> 
 <summary>oomfs</summary> 
-<a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/e6348/">sister</a>
+<a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/e6348/">emily</a>
 
 <a href="https://GitHub.com/sour-limy/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">valor</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>
 
