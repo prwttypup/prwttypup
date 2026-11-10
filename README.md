@@ -21,7 +21,7 @@ socials placeholder
       17ㅤ medkit f/oㅤ mentally illㅤ always iwec
       <br br br>
       <br br br>
-      Your text goes here!
+      infp ㅤ6w5 SP/SX 629ㅤ audhd
     </td>
   </tr>
 </table>
