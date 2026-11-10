@@ -9,7 +9,8 @@
 
 <details> 
 <summary>oomfs</summary> 
-<a href="https://GitHub.com/pwppy/">daughter</a>
+<a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/pwppy/">daughter</a>
+
 
 </details>
 socials placeholder
@@ -27,3 +28,5 @@ socials placeholder
 </table>
 <h3>$\color{#27D9C4}{\text{tell me, how many wounds did you endure}}\color{#000000}{\text{}}$</h3>
 <h3>$\color{#2165BD}{\text{because the person holding the knife was the one you loved}}\color{#2165BD}{\text{?}}$</h3>
+
+
