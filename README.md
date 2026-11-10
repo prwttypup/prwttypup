@@ -5,7 +5,7 @@
   align="left"
 />
 
-<h3>$\color{#27D9C4}{\text{ferrisㅤ berryㅤㅤmutt}}\color{#27D9C4}{\text{}}$</h3>
+<h3>$\color{#27D9C4}{\text{ferrisㅤ  berryㅤㅤmutt}}\color{#27D9C4}{\text{}}$</h3>
 
 <details> 
 <summary>oomfs</summary> 
