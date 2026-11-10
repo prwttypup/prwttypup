@@ -18,8 +18,9 @@ socials placeholder
 <table>
   <tr>
     <td>
-      <strong>My Text Box</strong>
-      <br>
+      17ㅤ medkit f/oㅤ mentally illㅤ always iwec
+      <br br br>
+      <br br br>
       Your text goes here!
     </td>
   </tr>
