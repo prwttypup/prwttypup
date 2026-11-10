@@ -15,7 +15,7 @@
 
 <a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/pwppy/">daughter</a>
 
-and paw ofc
+paws at u all
 </details>
 <a href="https://https://pronouns.cc/@prwttypup/">prns.cc</a>ㅤㅤ<a href="https://https://phighting.wiki//">phighting</a>
 <br br br>
