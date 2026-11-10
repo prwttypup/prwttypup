@@ -17,7 +17,7 @@
 
 paws at u all
 </details>
-<a href="https://https://pronouns.cc/@prwttypup/">prns.cc</a>ㅤㅤ<a href="https://https://phighting.wiki//">phighting</a>
+<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤㅤ<a href="https://phighting.wiki/">phighting</a>
 <br br br>
 <br br br>
 <table>
