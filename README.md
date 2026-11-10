@@ -15,8 +15,11 @@ ferrisㅤㅤberryㅤㅤmutt
 meowmeow 
 </details>
 <br br br>
-<br br br>
-<br br br>
+<details>
+<summary>oomfs</summary>
+
+meowmeow
+</details>
 <br br br>
 <br br br>
 <h3>$\color{#27D9C4}{\text{tell me, how many wounds did you endure}}\color{#000000}{\text{}}$</h3>
