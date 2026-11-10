@@ -11,7 +11,7 @@
 <summary>oomfs</summary> 
 <a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/e6348/">emily</a>
 
-<a href="https://GitHub.com/sour-limy/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">valor</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>
+<a href="https://GitHub.com/sour-lim/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">valor</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>
 
 <a href="https://GitHub.com/starfollower/">rocket</a>ㅤ<a href="https://GitHub.com/feralk9/">fatren</a>
 
