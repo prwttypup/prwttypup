@@ -5,7 +5,7 @@
   align="left"
 />
 
-<h3>$\color{#2165BD}{\text{ferrisㅤㅤberryㅤㅤmutt}}\color{#2165BD}{\text{}}$</h3>
+<h3>$\color{#2165BD}{\text{ferrisㅤ berryㅤㅤmutt}}\color{#2165BD}{\text{}}$</h3>
 
 <details> 
 <summary>oomfs</summary> 
@@ -13,7 +13,7 @@
 
 
 </details>
-socials placeholder
+<a href="https://https://pronouns.cc/@prwttypup/">prns.cc</a>ㅤㅤ<a href="https://https://phighting.wiki//">phighting</a>
 <br br br>
 <br br br>
 <table>
