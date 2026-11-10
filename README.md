@@ -11,9 +11,9 @@
 <summary>oomfs</summary> 
 <a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/e6348/">sister</a>
 
-<a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/pwppy/">daughter</a>
+<a href="https://GitHub.com/sour-limy/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">valor</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>
 
-<a href="https://GitHub.com/pwppy/">daughter</a>ㅤ<a href="https://GitHub.com/pwppy/">daughter</a>
+<a href="https://GitHub.com/starfollower/">rocket</a>ㅤ<a href="https://GitHub.com/feralk9/">fatren</a>
 
 paws at u all
 </details>
@@ -26,7 +26,7 @@ paws at u all
       17ㅤ medkit f/oㅤ mentally illㅤ always iwec
       <br br br>
       <br br br>
-      infp ㅤ6w5 SP/SX 629ㅤ audhd
+      infp ㅤ6w5 SP/SX 629ㅤ audhdㅤ 
     </td>
   </tr>
 </table>
