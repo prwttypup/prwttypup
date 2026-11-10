@@ -15,11 +15,7 @@ ferrisㅤㅤberryㅤㅤmutt
 meowmeow 
 </details>
 <br br br>
-<details>
-<summary>oomfs</summary>
-
-meowmeow
-</details>
+socials placeholder
 <br br br>
 <table>
   <tr>
