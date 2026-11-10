@@ -9,7 +9,7 @@
 
 <details> 
 <summary>oomfs</summary> 
-meowmeow
+<a href="https://GitHub.com/pwppy/">daughter</a>
 
 </details>
 socials placeholder
