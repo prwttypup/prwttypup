@@ -14,7 +14,6 @@ ferrisㅤㅤberryㅤㅤmutt
 
 meowmeow 
 </details>
-<br br br>
 socials placeholder
 <br br br>
 <br br br>
