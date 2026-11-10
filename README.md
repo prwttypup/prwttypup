@@ -6,7 +6,7 @@
 />
 
 <h3>$\color{#2165BD}{\text{ferrisㅤㅤberryㅤㅤmutt}}\color{#2165BD}{\text{}}$</h3>
-<br br br>
+
 <details> 
 <summary>oomfs</summary> 
 
