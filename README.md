@@ -25,7 +25,7 @@
 
 throws cupcakes at u
 </details>
-<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://youtu.be/tZQynR4daNw?si=Ob23z7tvUM7gwRgv">my little pony</a>
+<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://youtu.be/rXH91iEcRNw?si=Ok_0lloPMzMbA918">my little pony</a>
 <br br br>
 <br br br>
 <table>
