@@ -1,5 +1,5 @@
 <p align="center">
-<h3>$\color{#ff6dbc}{\text{i luv my oomfs}}\color{#ff6dbc}{\text{}}$</h3>
+<h3>$\color{#ff6dbc}{\text{confetti cannon}}\color{#ff6dbc}{\text{}}$</h3>
 
 
 <p align="center">
