@@ -6,7 +6,7 @@
 />
 
 <br br br>
-text text text text
+<h3>$\color{#27D9C4}{\text{soraㅤ  berry ㅤmutt}}\color{#27D9C4}{\text{}}$</h3>
 <br br br>
 <table>
   <tr>
