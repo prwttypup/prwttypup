@@ -7,6 +7,16 @@
 
 <br br br>
 <h3>$\color{#ff6dbc}{\text{soraㅤ  berry ㅤmutt}}\color{#27D9C4}{\text{}}$</h3>
+<details> 
+<summary>oomfs</summary> 
+<a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/e6348/">emily</a>
+
+<a href="https://GitHub.com/sour-lim/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">eli</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>
+
+<a href="https://GitHub.com/starfollower/">rocket</a>ㅤ<a href="https://GitHub.com/feralk9/">fatren</a>
+
+paws at u all
+</details>
 <br br br>
 <table>
   <tr>
@@ -18,8 +28,6 @@
     </td>
   </tr>
 </table>
-<br br br>
-<br br br>
 <br br br>
 <br br br>
 <br br br>
