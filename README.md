@@ -34,7 +34,7 @@ throws cupcakes at u
     17ㅤ pⴎpρყ  เ𝗋lㅤ ꧑ꫀᥒȶᥲllყ  เllㅤ ᥲlᨰᥲy꯱  เᨰꫀᥴ
     <br br br>
     <br br br>
-     เᥒƭp ㅤ6ᨰ5 ꯱p/꯱x 629ㅤ ᥲuɗ𐨓ɗㅤ 
+     เᥒƭp ㅤ6ᨰ5 ꯱p/꯱x 629ㅤ ᥲuɗ𐨓ɗㅤ‹3 
     </td>
   </tr>
 </table>
