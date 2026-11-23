@@ -29,6 +29,9 @@
 
 throws cupcakes at u
 </details>
+<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://pronouns.cc/@prwttypup">prns.cc</a>
+<br br br>
+<br br br>
 <table>
   <tr>
     <td>
@@ -39,8 +42,6 @@ throws cupcakes at u
     </td>
   </tr>
 </table>
-<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://pronouns.cc/@prwttypup">prns.cc</a>
-<br br br>
 <h3>$\color{#ff6dbc}{\text{cross my heart and hope to fly}}\color{#ff6dbc}{\text{}}$</h3>
 <h3>$\color{#ff6dbc}{\text{stick a cupcake in my eye!}}\color{#ff6dbc}{\text{}}$</h3>
 <br br br>
