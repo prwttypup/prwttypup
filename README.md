@@ -27,9 +27,7 @@
 <br br br>
 <br br br>
 <br br br>
-
-
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ
+ㅤ
 <p align="center">
 <img width="400" alt="image" src="https://github.com/user-attachments/assets/afa5ebc7-56dc-4c5c-8925-e8207c55fefa" />
 
