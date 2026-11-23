@@ -3,10 +3,6 @@
 
 <br br br>
 <br br br>
-<br br br>
-<br br br>
-<br br br>
-<br br br>
 <img
   src="https://github.com/user-attachments/assets/8a19f512-4a8f-43f2-a776-1eab3d2f8b81"
   alt="Project Screenshot"
