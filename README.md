@@ -41,4 +41,13 @@ throws cupcakes at u
 <br br br>
 <br br br>
 <br br br>
-ㅤ
+<br br br>
+<br br br>
+
+<details> 
+<summary>i luv my friends</summary> 
+<p align="center">
+<img width="300" alt="image" src="https://github.com/user-attachments/assets/ccdf7fea-72db-465e-b0c6-80fcf3c1ce7e" />
+
+</details>
+<table>
