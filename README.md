@@ -39,6 +39,6 @@ throws cupcakes at u
   </tr>
 </table>
 <h3>$\color{#ff6dbc}{\text{ᥴrꪮ꯱꯱ ꧑y 𐨓ꫀᥲ𝗋ȶ ᥲnɗ 𐨓ꪮpꫀ ȶꪮ ƭlყ}}\color{#ff6dbc}{\text{}}$</h3>
-<h3>$\color{#ff6dbc}{\text{stick a cupcake in my eye!}}\color{#ff6dbc}{\text{}}$</h3>
+<h3>$\color{#ff6dbc}{\text{꯱ȶick ᥲ ᥴuρᥴᥲkꫀ  เᥒ ꧑ყ ꫀყꫀ!ㅤ𝜗𝜚}}\color{#ff6dbc}{\text{}}$</h3>
 <br br br>
 <br br br>
