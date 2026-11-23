@@ -12,6 +12,7 @@
 />
 
 <br br br>
+<br br br>
 <h3>$\color{#ff6dbc}{\text{soraㅤ  berry ㅤmutt}}\color{#ff6dbc}{\text{}}$</h3>
 <details> 
 <summary>oomfs</summary> 
@@ -40,7 +41,6 @@ throws cupcakes at u
 <h3>$\color{#ff6dbc}{\text{stick a cupcake in my eye!}}\color{#ff6dbc}{\text{}}$</h3>
 <br br br>
 <br br br>
-<br br br>
-<br br br>
+
 
 <h3>$\color{#ff6dbc}{\text{cross my heart and hope to fly}}\color{#ff6dbc}{\text{}}$</h3>
