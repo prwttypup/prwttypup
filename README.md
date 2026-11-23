@@ -35,7 +35,7 @@ throws cupcakes at u
     </td>
   </tr>
 </table>
-<br br br>
+<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://pronouns.cc/@prwttypup">prns.cc</a>
 <br br br>
 <br br br>
 <br br br>
