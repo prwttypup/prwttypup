@@ -24,7 +24,6 @@
 
 throws cupcakes at u
 </details>
-<br br br>
 <table>
   <tr>
     <td>
