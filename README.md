@@ -17,9 +17,9 @@
 <h3>$\color{#ff6dbc}{\text{꯱orᥲㅤ  ⴆꫀr𝗋ყ ㅤ꧑uȶt}}\color{#ff6dbc}{\text{}}$</h3>
 <details> 
 <summary>oomfs</summary> 
-<a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>ㅤ
+bloodhound duoㅤ<a href="https://GitHub.com/pwppy/">kiki</a>ㅤ
 
-<a href="https://GitHub.com/sour-lim/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">eli</a>ㅤ 
+<a href="https://GitHub.com/Rott3nPray3rs/">andre</a>ㅤ<a href="https://GitHub.com/sour-lim/">eddie</a>ㅤ<a href="https://GitHub.com/valorenet/">eli</a>ㅤ 
 
 <a href="https://GitHub.com/starfollower/">rocket</a>ㅤ<a href="https://GitHub.com/feralk9/">fatren</a>
 
