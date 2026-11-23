@@ -11,7 +11,7 @@ text text text text
 <table>
   <tr>
     <td>
-      17ㅤ medkit f/oㅤ mentally illㅤ always iwec
+      17ㅤ mentally illㅤ always iwec
       <br br br>
       <br br br>
       infp ㅤ6w5 SP/SX 629ㅤ audhdㅤ 
