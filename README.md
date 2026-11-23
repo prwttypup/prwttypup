@@ -15,7 +15,7 @@
 
 <a href="https://GitHub.com/starfollower/">rocket</a>ㅤ<a href="https://GitHub.com/feralk9/">fatren</a>
 
-paws at u all
+throws cupcakes at u
 </details>
 <br br br>
 <table>
