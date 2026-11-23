@@ -6,7 +6,7 @@
 
 <img
   src="https://github.com/user-attachments/assets/8a19f512-4a8f-43f2-a776-1eab3d2f8b81"
-  alt="Project Screenshot"
+  alt="meow"
   width="300"
   align="left"
 />
@@ -25,7 +25,7 @@
 
 throws cupcakes at u
 </details>
-<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://pronouns.cc/@prwttypup">prns.cc</a>
+<a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://youtu.be/tZQynR4daNw?si=Ob23z7tvUM7gwRgv">my little pony</a>
 <br br br>
 <br br br>
 <table>
