@@ -43,15 +43,3 @@ throws cupcakes at u
 <br br br>
 <br br br>
 ㅤ
-<p align="center">
-<img width="400" alt="image" src="https://github.com/user-attachments/assets/afa5ebc7-56dc-4c5c-8925-e8207c55fefa" />
-
-
-
-<img width="57" alt="image" src="https://github.com/user-attachments/assets/8ba29aa4-e649-4511-bbb0-63fcc9ce020a" />
-
-<img  width="64" alt="image" src="https://github.com/user-attachments/assets/06baeb6b-ad21-4963-ac33-ae18505b9974" />
-
-<img width="56" alt="image" src="https://github.com/user-attachments/assets/d7c54c28-86e0-4ac7-97c3-382d8487ff70" />
-
-
