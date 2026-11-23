@@ -1,4 +1,8 @@
 <p align="center">
+<h3>$\color{#ff6dbc}{\text{i luv my oomfs}}\color{#ff6dbc}{\text{}}$</h3>
+
+
+<p align="center">
 <img width="400" alt="image" src="https://github.com/user-attachments/assets/afa5ebc7-56dc-4c5c-8925-e8207c55fefa" />
 
 <p align="center">
@@ -41,6 +45,3 @@ throws cupcakes at u
 <h3>$\color{#ff6dbc}{\text{stick a cupcake in my eye!}}\color{#ff6dbc}{\text{}}$</h3>
 <br br br>
 <br br br>
-
-
-<h3>$\color{#ff6dbc}{\text{cross my heart and hope to fly}}\color{#ff6dbc}{\text{}}$</h3>
