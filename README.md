@@ -13,7 +13,7 @@
 
 <br br br>
 <br br br>
-<h3>$\color{#ff6dbc}{\text{soraㅤ  berry ㅤmutt}}\color{#ff6dbc}{\text{}}$</h3>
+<h3>$\color{#ff6dbc}{\text{꯱orᥲㅤ  ⴆꫀr𝗋ყ ㅤ꧑uȶt}}\color{#ff6dbc}{\text{}}$</h3>
 <details> 
 <summary>oomfs</summary> 
 <a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/e6348/">emily</a>
