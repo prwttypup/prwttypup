@@ -12,7 +12,7 @@
 />
 
 <br br br>
-<h3>$\color{#ff6dbc}{\text{soraㅤ  berry ㅤmutt}}\color{#27D9C4}{\text{}}$</h3>
+<h3>$\color{#ff6dbc}{\text{soraㅤ  berry ㅤmutt}}\color{#ff6dbc}{\text{}}$</h3>
 <details> 
 <summary>oomfs</summary> 
 <a href="https://GitHub.com/pwppy/">kiki</a>ㅤ<a href="https://GitHub.com/e6348/">emily</a>
@@ -27,20 +27,20 @@ throws cupcakes at u
 <table>
   <tr>
     <td>
-      17ㅤ mentally illㅤ always iwec
-      <br br br>
-      <br br br>
-      infp ㅤ6w5 SP/SX 629ㅤ audhdㅤ 
+    17ㅤ mentally illㅤ always iwec
+    <br br br>
+    <br br br>
+    infp ㅤ6w5 SP/SX 629ㅤ audhdㅤ 
     </td>
   </tr>
 </table>
 <a href="https://pronouns.cc/@prwttypup">prns.cc</a>ㅤ <a href="https://pronouns.cc/@prwttypup">prns.cc</a>
 <br br br>
-<br br br>
-<br br br>
-<br br br>
+<h3>$\color{#ff6dbc}{\text{cross my heart and hope to fly}}\color{#ff6dbc}{\text{}}$</h3>
+<h3>$\color{#ff6dbc}{\text{stick a cupcake in my eye!}}\color{#ff6dbc}{\text{}}$</h3>
 <br br br>
 <br br br>
 <br br br>
 <br br br>
 
+<h3>$\color{#ff6dbc}{\text{cross my heart and hope to fly}}\color{#ff6dbc}{\text{}}$</h3>
